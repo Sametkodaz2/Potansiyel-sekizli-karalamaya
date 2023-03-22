@@ -1,0 +1,1 @@
+# Potansiyel-sekizli-karalamaya
